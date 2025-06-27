@@ -1,0 +1,1 @@
+# Smart-NpK-Monitoring-and-control-system-for-precision-agriculture-
